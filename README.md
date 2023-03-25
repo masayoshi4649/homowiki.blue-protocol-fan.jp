@@ -1,1 +1,1 @@
-# homowiki.blue-protocol-fan.jp
+# yjsnpi.wiki.blue-protocol-fan.jp
